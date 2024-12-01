@@ -8,3 +8,5 @@ Verónica Julieta Gómez Córdoba, 1004214754, Ingeniería industrial
 Carlos Enrique Orrego Zapata, 71794853, ingeniería de sistemas modalidad virtual
 https://www.youtube.com/watch?v=x-jTQoGYujo&feature=youtu.be entrega 2
 
+https://www.youtube.com/watch?v=xOwRDfiaWsc&ab_channel=VeronicaGomez entrega 3
+
